@@ -1,5 +1,12 @@
-## 不知道用它干什么
+# Chatgpt 地址
 
-域名出售
+## 免费、免登陆 
 
-QQ: 1101292065
+- https://ai27.gptforlove.com/
+
+- https://chat18.aichatos8.com/
+
+
+## 附
+
+- 7x24h.online 域名出售QQ: 1101292065
