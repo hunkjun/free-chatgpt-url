@@ -8,6 +8,10 @@
 
 - [https://chat18.aichatos8.com/](https://chat18.aichatos8.com/)
 
+## 免费小红书生成器-ChatGPT
+
+- [https://ai.xiaohongshu.live/](https://ai.xiaohongshu.live/)
+- [https://www.xhsai.top/zh](https://www.xhsai.top/zh)
 
 ## 其他
 
